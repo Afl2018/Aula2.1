@@ -1,1 +1,3 @@
-# Aula2.1
+juliana pae
+thais araujo
+bruna marquezine
