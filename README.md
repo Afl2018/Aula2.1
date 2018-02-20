@@ -1,3 +1,4 @@
 juliana pae
-thais araujo
+debora seco
 bruna marquezine
+Seu Jorge
